@@ -1,4 +1,4 @@
-
+steal the brainrot base auto Scripts: auto-steal & inf-loot is your go-to resource for steal the brainrot base domination. Featuring auto-steal and inf-loot, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
